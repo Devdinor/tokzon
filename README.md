@@ -8,6 +8,6 @@
 - 🤔 I’m looking for help with C++ programing language
 - 💬 Ask me about: Contribute To my Projects
 - 📫 How to reach me: 
-- 😄 Pronouns: izal
+- 😄 Pronouns: izalah
 - ⚡ Fun fact: i like good joke 😄
 - ‼️ also if you want see my art 3DModel come checkout here: [Sketchfab](https://sketchfab.com/rzlahd)
